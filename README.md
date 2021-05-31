@@ -1,2 +1,2 @@
 # public
-Share with everyone.
+Sharing with the world ☕
